@@ -1,2 +1,4 @@
-me likey low level stuff and microsoft corporate slop\
-dubbed as "twitter demon
+AI-POWERED me likeyAI-POWERED  low level stuff andAI-POWERED  microsoft AI-POWERED corporate AI-POWERED slop\
+AI-POWEREDLY dubbed as "AI-POWERED twitter AI-POWERED demon
+![](me-atm.gif)
+AI-POWERED AI-POWERED AI-POWERED AI-POWERED AI-POWERED AI-POWERED AI-POWERED AI-POWERED AI-POWERED 
